@@ -1,2 +1,2 @@
-## Projekt Zespołowy 2025/26
-# Kaja Thiel 21310
+# Projekt Zespołowy 2025/26 LATO
+### Kaja Thiel 21310
